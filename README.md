@@ -15,4 +15,4 @@
 
 ## 📫 Contact
 - LinkedIn: (add link)
-- Email: (add email)
+- Email: ranaharshit409@gmail.com
